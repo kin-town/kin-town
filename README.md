@@ -1,36 +1,19 @@
-[![tumblr-f1a25e7d52cbbeae9c8f43249eaaea3c-62607968-1280.gif](https://i.postimg.cc/QMSHRnKz/tumblr-f1a25e7d52cbbeae9c8f43249eaaea3c-62607968-1280.gif)](https://postimg.cc/GB8LDKQP)
+[![tumblr-e17417d7fb78c75081330a257f541a23-a819b74c-400.png](https://i.postimg.cc/xT3tmHvB/tumblr-e17417d7fb78c75081330a257f541a23-a819b74c-400.png)](https://postimg.cc/RNq75WbT)
 
-𝑻𝒉𝒊𝒔 𝒊𝒔 𝒊𝒎𝒑𝒐𝒓𝒕𝒂𝒏𝒕!! 𝒏𝒐𝒎𝒊𝒏𝒂𝒕𝒆 𝒚𝒐𝒖𝒓𝒔𝒆𝒍𝒇 𝒐𝒓 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 𝒉𝒆𝒓𝒆 𝒐𝒏 𝒕𝒉𝒆 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆 𝒄𝒉𝒐𝒐𝒔𝒆 𝒂 𝒔𝒐𝒏𝒈 𝒂𝒏𝒅 𝒕𝒉𝒆𝒏 𝒚𝒐𝒖𝒓 𝒈𝒊𝒕𝒉𝒖𝒃:
+𝐇𝐞𝐥𝐥𝐨 𝐭𝐡𝐞𝐫𝐞 𝐟𝐫𝐢𝐞𝐧𝐝𝐬! 𝐘𝐨𝐮 𝐜𝐚𝐧 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐞 𝐲𝐨𝐮 𝐚𝐧𝐝 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐡𝐞𝐫𝐞! 𝐈𝐝 𝐥𝐨𝐯𝐞 𝐭𝐨 𝐬𝐞𝐞 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧𝐬! 
+𝐈𝐦𝐩𝐨𝐫𝐭𝐚𝐧𝐭 𝐲𝐞𝐬 𝐢𝐭𝐬 𝐜𝐚𝐥𝐥𝐞𝐝 𝐤𝐢𝐧 𝐭𝐨𝐰𝐧 𝐁𝐔𝐓! 𝐘𝐨𝐮 𝐜𝐚𝐧 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐞 𝐚𝐬 𝐚 𝐲𝐮𝐦𝐞 𝐬𝐡𝐢𝐩𝐩𝐞𝐫, 𝐤𝐢𝐧, 𝐬𝐨𝐦𝐭𝐡𝐢𝐧𝐠 𝐲𝐨𝐮 𝐡𝐚𝐭𝐞/𝐥o𝐯𝐞 𝐞𝐭𝐜 𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐢𝐬 𝐨𝐩𝐞𝐧!
 
-"𝑯𝒆𝒍𝒍𝒐 𝒊 𝒘𝒐𝒖𝒍𝒅 𝒍𝒊𝒌𝒆 𝒕𝒐 𝒏𝒐𝒎𝒊𝒏𝒂𝒕𝒆 *𝒏𝒂𝒎𝒆* 𝒂𝒔 𝒕𝒉𝒆 𝒔𝒐𝒏𝒈 *𝒏𝒂𝒎𝒆*" 𝑫𝑶𝑵𝑻 𝒖𝒔𝒆 @ 𝒕𝒉𝒊𝒔 𝒊𝒔 𝒂𝒍𝒔𝒐 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒆𝒅 𝒊𝒏 𝒕𝒉𝒆 𝒔𝒕𝒓𝒘𝒑𝒂𝒈𝒆
+𝐈 𝐰𝐢𝐥𝐥 𝐧𝐨𝐭 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐞 𝐩𝐫𝐨𝐛𝐥𝐞𝐦𝐚𝐭𝐢𝐜 𝐩𝐞𝐨𝐩𝐥𝐞 𝐚𝐧𝐝 𝐚𝐭 𝐭𝐡𝐞 𝐬𝐚𝐦𝐞 𝐭𝐢𝐦𝐞 𝐢𝐬 𝐭𝐡𝐢𝐬 𝐚 𝐬𝐩𝐚𝐦 𝐟𝐨𝐥𝐥𝐨𝐰 𝐚𝐜𝐜𝐨𝐮𝐧𝐭 𝐬𝐨 𝐲𝐞𝐚 !
 
+𝐈 𝐡𝐚𝐯𝐞 𝐚 𝐥𝐢𝐟𝐞 𝐚𝐧𝐝 𝐰𝐢𝐥𝐥 𝐧𝐨𝐭 𝐛𝐞 𝐚𝐛𝐥𝐞 𝐭𝐨 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐞 𝐞𝐯𝐞𝐫𝐲𝐨𝐧𝐞 𝐚𝐟𝐭𝐞𝐫 𝐚 𝐝𝐚𝐲 𝐩𝐫𝐨𝐛𝐚𝐛𝐥𝐲 
 
-𝑷𝒓𝒐𝒃𝒍𝒆𝒎𝒂𝒕𝒊𝒄 𝒑𝒆𝒐𝒑𝒍𝒆 𝒘𝒊𝒍𝒍 𝒏𝒐𝒕 𝒃𝒓 𝒂𝒅𝒅𝒆𝒅 𝒐𝒓 𝒓𝒆𝒎𝒐𝒗𝒆𝒅 𝒂𝒔 𝒇𝒂𝒔𝒕 𝒂𝒔 𝒑𝒐𝒔𝒔𝒊𝒃𝒍𝒆 𝒕𝒆𝒍𝒍 𝒎𝒆 𝒊𝒇 𝑰 𝒅𝒊𝒅 𝒂𝒅𝒅 𝒐𝒏𝒆!!
+𝐩𝐥𝐞𝐚𝐬𝐞 𝐢𝐧𝐟𝐨𝐫𝐦 𝐦𝐞 𝐢𝐟 𝐩𝐫𝐨𝐛𝐥𝐞𝐦𝐚𝐭𝐢𝐜 𝐩𝐞𝐨𝐩𝐥𝐞 𝐚𝐫𝐞 𝐨𝐧 𝐡𝐞𝐫𝐞 𝐚𝐧𝐝 𝐢𝐧𝐟𝐨𝐫𝐦 𝐦𝐞 𝐢𝐟 𝐲𝐨𝐮 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐛𝐞 𝐫𝐞𝐦𝐨𝐯𝐞𝐝 𝐭𝐡𝐚𝐭𝐬 𝐚𝐥𝐥!
 
+𝐓𝐞𝐥𝐥 𝐦𝐞 𝐲𝐨𝐮𝐫 𝐠𝐢𝐭 𝐮𝐬𝐞𝐫 𝐚𝐧𝐝 𝐲𝐨𝐮𝐫 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧 𝐚𝐧𝐝 𝐢 𝐰𝐢𝐥𝐥 𝐚𝐝𝐝 𝐲𝐨𝐮 𝐚𝐬 𝐟𝐚𝐬𝐭 𝐚𝐬 𝐩𝐨𝐬𝐬𝐢𝐛𝐥𝐞
 
-𝑰 𝒘𝒐𝒏𝒕 𝒂𝒍𝒘𝒂𝒚𝒔 𝒃𝒆 𝒂𝒃𝒍𝒆 𝒕𝒐 𝒂𝒅𝒅 𝒚𝒐𝒖 𝒊𝒏 𝒐𝒏𝒆 𝒅𝒂𝒚. 𝑰 𝒉𝒂𝒗𝒆 𝒂 𝒍𝒊𝒇𝒆 𝒂𝒏𝒅 𝒉𝒂𝒗𝒆 𝒐𝒕𝒉𝒆𝒓 𝒕𝒉𝒊𝒏𝒈𝒔 𝒕𝒐 𝒅𝒐!!
+𝐧𝐨 𝐝𝐨𝐮𝐛𝐥𝐞𝐬 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐚𝐝𝐝𝐞𝐝 𝐚𝐧𝐝 𝐭𝐞𝐥𝐥 𝐦𝐞 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐫𝐞 𝐚 𝐧𝐨𝐧 𝐬𝐡𝐚𝐫𝐢𝐧𝐠 𝐲𝐮𝐦𝐞 𝐨𝐫 𝐧𝐨𝐭 𝐨𝐫 𝐢𝐟 𝐲𝐨𝐮 𝐝𝐨𝐧𝐭 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐭𝐡𝐚𝐭𝐬 𝐟𝐢𝐧𝐞 𝐭𝐨𝐨!
 
-
-𝑰 𝒘𝒐𝒏𝒕 𝒂𝒅𝒅 𝒅𝒐𝒖𝒃𝒍𝒆𝒔 𝒔𝒐 𝒚𝒆𝒂 𝒑𝒍𝒆𝒂𝒔𝒆 𝒂𝒗𝒐𝒊𝒅 𝒕𝒉𝒆𝒎 𝒐𝒓 𝒕𝒆𝒍𝒍 𝒎𝒆 𝒊𝒇 𝒕𝒉𝒆𝒓𝒆 𝒂𝒓𝒆 
-
-𝑷𝒍𝒆𝒂𝒔𝒆 𝒐𝒏𝒍𝒚 𝒏𝒐𝒎𝒊𝒏𝒂𝒕𝒆 𝒂𝒔 1 𝒔𝒐𝒏𝒈  𝒊𝒕 𝒄𝒂𝒏 𝒃𝒆 𝒄𝒉𝒂𝒏𝒈𝒆𝒅  𝒐𝒓 𝒓𝒆𝒎𝒐𝒗𝒆𝒅
-
-𝑨𝒍𝒔𝒐 𝒉𝒆𝒍𝒍𝒐 𝒕𝒐 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅 𝑴𝒆𝒍𝒐𝒅𝒚 
-
-[![tumblr-4dd1141cc9329a9921cf5313567446b9-45549b4e-250.gif](https://i.postimg.cc/j5zkxPKk/tumblr-4dd1141cc9329a9921cf5313567446b9-45549b4e-250.gif)](https://postimg.cc/2bSxTq14)
-
-forever is the song of [Cannibalsobsession](https://github.com/Cannibalsobsession) 
-
-Клан is the song of [cherryflavoaredfoam](https://github.com/cherryflavoredfoam)
-
-baby by born without bones the song of 
-[plsticpup](https://github.com/plsticpup)
-
-Aint nobody else like you ( by Cass Elliot ) is the song of [PinkestClown](https://github.com/PinkestClownn)
-
-Am I Dreaming is the song of [Z33r00LagsAlot](https://github.com/Z33r00LagsAlot)
-
-[![tumblr-36c46e7ceddf8b952d58cf1ec6374079-d0d02237-640.gif](https://i.postimg.cc/J0cPbL2t/tumblr-36c46e7ceddf8b952d58cf1ec6374079-d0d02237-640.gif)](https://postimg.cc/YL06HJkw)
+[![tumblr-4f389187cd144272dc0433646ead1f00-46c8fc6f-400.png](https://i.postimg.cc/zf0sF6nD/tumblr-4f389187cd144272dc0433646ead1f00-46c8fc6f-400.png)](https://postimg.cc/LqgQHyCG)
 <!--
 **Songs-Town/Songs-Town** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
