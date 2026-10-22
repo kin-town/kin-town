@@ -20,6 +20,7 @@
 [poisonedritual](https://github.com)
 is officially two time!
 
+[cuttlefish](https://github.com) is officially cuttlefish from splatoon
 
 <!--
 **Songs-Town/Songs-Town** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
