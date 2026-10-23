@@ -17,10 +17,16 @@
 
 [Cannibalsobsession](https://github.com) is officially poppy! 
 
+[Chemicalshot](https://github.com) is officially wemmbu
+
+[ColeCassidiesCanonBf](https://github.com) is officially sprout
+
+[l0veis4ika](https://github.com) is officially cuttlefish from splatoon
+
 [poisonedritual](https://github.com)
 is officially two time!
 
-[cuttlefish](https://github.com) is officially cuttlefish from splatoon
+[TwistedPastry](https://github.com) is officially cosmo
 
 <!--
 **Songs-Town/Songs-Town** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
