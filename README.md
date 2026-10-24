@@ -25,6 +25,8 @@
 
 [ColeCassidiesCanonBf](https://github.com) is officially sprout
 
+[dicedrevival](https://github.com) is ofically Gourdy Holloway and Archangel Gabriel yumeshipperfrom the voidsharing Catalogue
+
 [l0veis4ika](https://github.com) is officially Callie cuttlefish from splatoon
 
 [poisonedritual](https://github.com)
