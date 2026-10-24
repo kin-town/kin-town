@@ -23,6 +23,8 @@
 
 [Chemicalshot](https://github.com) is officially wemmbu
 
+[chipwhisp](https://github.com) is officially spiderman-noir
+
 [ColeCassidiesCanonBf](https://github.com) is officially sprout
 
 [dicedrevival](https://github.com) is ofically Gourdy Holloway and Archangel Gabriel yumeshipperfrom the voidsharing Catalogue
