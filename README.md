@@ -29,6 +29,10 @@
 
 [dicedrevival](https://github.com) is ofically Gourdy Holloway and Archangel Gabriel yumeshipperfrom the voidsharing Catalogue
 
+[Heart0fGold](https://github.com) is officially Ethan (Pokémon) and Karl (Guts & Blackpowder)
+
+[ificouldmeetyouagain](https://github.com) os offically saturn
+
 [l0veis4ika](https://github.com) is officially Callie cuttlefish from splatoon
 
 [poisonedritual](https://github.com)
