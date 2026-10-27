@@ -37,6 +37,8 @@
 
 [l0veis4ika](https://github.com) is officially Callie cuttlefish from splatoon
 
+[Pinckore](https://github.com) is officially Aspen Moor
+
 [poisonedritual](https://github.com)
 is officially two time!
 
